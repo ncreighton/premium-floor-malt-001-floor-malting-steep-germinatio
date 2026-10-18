@@ -1,0 +1,2 @@
+# premium-floor-malt-001-floor-malting-steep-germinatio
+Tired of sticky notes and spreadsheets failing to capture the nuances of your floor malting batches? The Floor Malting Steep Germination and Kilning Tracker brings precision to your traditional craft.  This Notion template eliminates data fragmentation by centralizing every stage of floor malting—steep, germination, and kilning—into one organized w
